@@ -9,7 +9,7 @@ LINK: https://www.notion.so/1-1fbba7a9646f806195fde3d7c32ea219?pvs=4
 LINK: 
 
 ## 방지형
-LINK: 
+LINK: https://www.notion.so/1fbf89eac2f180afb3eec28b6477ed19?pvs=4
 
 ## 서주하
 LINK: 
