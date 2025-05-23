@@ -4,7 +4,7 @@ LINK: https://efficient-saver-88c.notion.site/Daily-1f1880186a9f800db735ef0730c4
 
 ---
 **김철현**  
-LINK: https://www.notion.so/1-1fbba7a9646f806195fde3d7c32ea219?pvs=4
+LINK:https://yielding-kilometer-1f2.notion.site/1fbba7a9646f806195fde3d7c32ea219?pvs=4
 
 ---
 **김하늘**  
