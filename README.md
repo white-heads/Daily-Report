@@ -1,6 +1,6 @@
 # 1팀 Daily-Report
 **김어진**  
-LINK: 
+LINK: https://efficient-saver-88c.notion.site/Daily-1f1880186a9f800db735ef0730c4d450?pvs=4
 
 ---
 **김철현**  
